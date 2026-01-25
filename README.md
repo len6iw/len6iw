@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **java and its frameworks**
 
-- 📫 How to reach me **itzlen6iw@gmail.com**
+- 📫 How to reach me **.miguelouu** on discord.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
